@@ -19,9 +19,9 @@
                 <h2>Ah yêu thuỳ linh:3</h2>
                 <p>Nhân ngày phụ nữ Việt Nam ta
                     <br>
-                    Gửi mấy vần thơ gọi chút quà
+                    nhân dịp 20/10
                     <br>
-Chúc chị môi hồng xinh đẹp nhé
+ah chúc bé một ngày 20/10 vv :3
 <br>
 Mừng em má đỏ dễ thương nha <br>
 Tình yêu thắm thiết hoài đơm nụ <br>
